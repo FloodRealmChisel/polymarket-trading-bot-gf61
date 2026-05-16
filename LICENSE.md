@@ -1,4 +1,4 @@
-# 
+# premium Polymarket Addon | price-monitoring + slippage-control offers the most advanced Polymarket addon, with price-monitoring and slippage-control. Ideal for professional
 
 
 
